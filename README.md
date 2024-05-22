@@ -2,8 +2,7 @@ Hi! I'm CSelH!
 
 I write game systems, settings, and stories. 
 
-While most of my work to date has focused on tabletop roleplaying games, I also work on fiction novels, nonfiction essays,
-  and other gaming formats besides TTRPGs. 
+While most of my work to date has focused on tabletop roleplaying games, I also work on fiction novels, nonfiction essays, and other gaming formats besides TTRPGs. 
 
 
 If you're interested in my work, want to collaborate, or are just wanting to chat feel free to reach out!
